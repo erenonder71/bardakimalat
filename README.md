@@ -1,0 +1,2 @@
+# bardakimalat
+görsel büt ödevi
